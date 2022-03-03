@@ -1,1 +1,1 @@
-# GitExersise
+# Kalmyrza Zholchubekov
